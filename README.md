@@ -1,1 +1,1 @@
-# pq-pq-critheria
+# pq-pq-critherion
